@@ -6,5 +6,5 @@
 字牌：大字剥皮、安化跑胡子、邵阳剥皮、娄底放炮罚、六胡抢、十胡卡、邵阳字牌、红拐弯、冷水江十胡倒、十五胡、二人跑胡子、株洲碰胡、湘乡跑胡子、湘潭跑胡子、沅陵跑胡子、永州扯胡子、落地扫、溆浦老牌、溆浦跑胡子、江永15张、永州老戳、湘阴捉红字、捉红字、岳阳歪胡子、福禄寿、郴州字牌、桂阳字牌、益阳歪胡子、郴州毛胡子、湘西二七十、福禄寿20张、耒阳字牌、常德跑胡子、汉寿跑胡子、南县鬼胡子、沅江鬼胡子、石门跑胡子、安乡偎麻雀、96扑克.
 
 
-源码下载: https://mega.nz/file/oLlGRTBQ#DefaUedsWmoAYruhg1kMcarHuBcLMRmF5RA5VoQqWkI 
+源码下载: https://mega.nz/file/oLlGRTBQ#DefaUedsWmoAYruhg1kMcarHuBcLMRmF5RA5VoQqWkI <br>
 频道： https://t.me/tgymw_shop
